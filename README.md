@@ -6,5 +6,5 @@
 ### você pode entrar em contato comigo 📫
 `brandao.antonio@escola.pr.gov.br`
 
-![](https://lh3.googleusercontent.com/a/ACg8ocIW5Xz5zikRgBWWZbGIawKPl_oXJp-GvSG4CYLBW_A0m3AmYuXL=s288-c-no
+![](https://i.pinimg.com/originals/49/11/9d/49119df8c1cc449da4df00c5b271998c.gif
 )
